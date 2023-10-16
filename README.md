@@ -2,4 +2,4 @@
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on learning how to build my own site
-- 📫 How to reach me 6202821685
+- 📫 How to reach me by text @ 6202821685
